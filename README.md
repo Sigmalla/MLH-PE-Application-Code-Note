@@ -18,5 +18,3 @@ Thank you for your understanding and consideration. I am very enthusiastic about
 Sincerely,
 
 Kristine Kuprevica.
-[Your Email Address (Optional, but good practice to include)]
-[Link to your main GitHub profile (e.g., `https://github.com/yourusername`) (Optional)]
