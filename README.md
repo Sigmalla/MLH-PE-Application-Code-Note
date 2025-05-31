@@ -16,5 +16,4 @@ I am committed to using this focused time to build a robust and relevant project
 Thank you for your understanding and consideration. I am very enthusiastic about the possibility of joining the MLH Fellowship.
 
 Sincerely,
-
 Kristine Kuprevica.
